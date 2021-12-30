@@ -1,0 +1,1 @@
+1. Excel- Part 1, 52:57, the icons in the menu- bar are not aligning center 
